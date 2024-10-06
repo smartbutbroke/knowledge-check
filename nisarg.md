@@ -1,0 +1,6 @@
+# HI I'M NISARG
+## I WISH I WAS WRITING THIS IN OBSIDIAN
+## HOPE I NEVER HAVE TO WORK WITH PACKAGE.JSON IN MY LIFE EVER AGAIN
+Github Email-ID: nisargdesai0016@gmail.com
+Hobbies: :)
+Where I'm from: Gujarat
